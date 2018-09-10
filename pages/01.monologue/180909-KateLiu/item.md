@@ -20,6 +20,10 @@ taxonomy:
 
 ちなみに，上記Youtubeのコメント欄を見ると「ここ2日間でもう10回以上聴いてしまっている。だれか助けてくれ」「2ヶ月以上立ってもまだやめられない。生活に支障をきたしている」「おれも溺れかかったいる」など被害者続出なので，禁断症状には気をつけないといけない。
 
+以下はFantasyの演奏。Codaは感涙。
+
+![Kate Liu – Fantasy in F minor Op. 49 (first stage)](https://www.youtube.com/watch?v=5TDx8ygZDaA)
+
 以下はKate Liuのバラード4番。
 
 ![Kate Liu – Ballade in F minor Op. 52 (second stage)](https://www.youtube.com/watch?v=UMSwmDK-sTM)
